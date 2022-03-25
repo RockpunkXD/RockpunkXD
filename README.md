@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RockpunkXD
+- 👋 Hi, I’m Emmett Harvey!
 - 👀 I’m interested in gaming,communications, media, film, animation, coding, game design, and music!
 - 🌱 I’m currently learning communications and media studies
 - 💞️ I’m looking to collaborate on not much right now. Want to get my bearings here :) eventually I would be interested in learning specific things about game design
