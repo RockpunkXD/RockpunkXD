@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RockpunkXD
-- 👀 I’m interested in gaming,communications, media, film, animation, coding, game design
+- 👀 I’m interested in gaming,communications, media, film, animation, coding, game design, and music!
 - 🌱 I’m currently learning communications and media studies
 - 💞️ I’m looking to collaborate on not much right now. Want to get my bearings here :) eventually I would be interested in learning specific things about game design
 - 📫 How to reach me emmettharvey49@gmail.com
